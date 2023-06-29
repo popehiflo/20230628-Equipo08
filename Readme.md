@@ -1,2 +1,2 @@
 Pool Petter Hijuela Florian-Erika Rios Suesca-Andres Felipe Gómez Fuentes-
-Maria Alejandra Sanchez Tavera
+Maria Alejandra Sanchez Tavera-Carlos Aranda Melgar
